@@ -2,7 +2,7 @@
 
 1. Dorzh Molotkov
 2. You can contact with me:
-    * Email: b4d.r@icluod.com;
+    * Email: b4d.r@icluod.com; b4d.r@ya.ru
     * Telegram: @dante_limb;
 3. I want to learn to program, because this branch very perspective and profession in demand. I'm fast learner and love this.
 4. I have low skills in programming
